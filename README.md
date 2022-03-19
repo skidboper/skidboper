@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @skidboper
+- 👀 I’m interested in ... Networking & Cyber Security
+- 🌱 I’m currently learning ...  About the MetaVerse
+- 💞️ I’m looking to collaborate on ... Nothing ;0
+- 📫 How to reach me ... skidboper@gmail.com
